@@ -1,3 +1,3 @@
 # lab4SE
 lab4SE
-alabala portocala
+alabala portocala nu stiu
